@@ -15,3 +15,7 @@ cs 1-6 model
 
 https://cs-goodgame.ru/
 cs 1-6 russ
+
+
+yandex disk 
+https://disk.yandex.ru/d/nyloXCXEggnBtQ
